@@ -88,6 +88,80 @@ Em outros países nosso brigadeiro é conhecido como “trufa brasileira”.
 
 
 
+# INGREDIENTES 🥣🥣🥣🥣🥣🥣
+
+
+
+
+1 caixa de leite condensado
+
+1 colher (sopa) de margarina sem sal
+
+7 colheres (sopa) de achocolatado ou 4 colheres (sopa) de chocolate em pó
+
+chocolate granulado
+
+
+
+# MODO DE PREPARO
+
+
+
+1 Em uma panela funda, acrescente o leite condensado, a margarina e o chocolate em pó.
+
+
+2 Cozinhe em fogo médio e mexa até que o brigadeiro comece a desgrudar da panela.
+
+
+3 Deixe esfriar e faça pequenas bolas com a mão passando a massa no chocolate granulado.
+
+
+
+
+
+# MANIÇOBA 🥘🥘🥘
+
+
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/97fae7cd-8dd2-4143-83f9-4d069efe3e43)
+
+
+### HISTÓRIA 
+
+A Maniçoba é um prato de origem indígena, típico da culinária paraense e amapaense. Pela origem da folha de que é produzido, surgiu provavelmente entre aldeias indígenas no norte brasileiro, embora seja comumente apontado como uma comida paraense. Tem como principal ingrediente a maniva, a folha da mandioca moída.
+
+Em seu preparo, as folhas da mandioca são moídas e cozidas por aproximadamente uma semana, para que se retire da planta o ácido cianídrico, que é venenoso. Depois, são acrescidas a elas carnes de porco e bovina, e outros ingredientes defumados e salgados. A maniçoba é servida acompanhada de arroz branco, farinha de mandioca e pimenta.
+
+Em Sergipe, o Museu da Gente Sergipana cita a importância da maniçoba para os municípios de Lagarto e Simão Dias, tradição que passa de pai para filho, iniciando com o comerciante local de nome João Mendes e passando para o filho Rildo Mendes, conhecido como Gordinho da Maniçoba,[8][9] onde maniçoba é prato tradicional das festividades.
+
+A maniçoba também é típica do Recôncavo baiano, sobretudo dos municípios de Cachoeira e Santo Amaro, onde também é servida durante eventos comemorativos locais, como festa de São João da Feira do Porto.[10][11] É vendida na feira livre, em forma de bolos ou em refeições tipo "prato feito".[12] No Pará, onde também é um prato típico muito conhecido, ela é conhecida como feijoada paraense, já que leva praticamente os mesmos ingredientes.
+
+# INGREDIENTES
+
+1,5 kg de maniva pré-cozida
+Folhas de louro
+1 kg de toucinho salgado
+
+1 kg de linguiça calabresa
+charque
+1/2 kg de charque
+linguiça paio
+1/2 kg de paio
+1/2 kg de carne de porco assada de forno
+bacon
+1/2 kg de bacon
+Costelinha de porco defumada
+
+
+# Modo de preparo
+
+
+A preparação da maniçoba é marcada por ser um processo longo e trabalhoso. Inicialmente, as folhas da mandioca brava são colhidas e passam por um período de fermentação que pode durar várias semanas. Durante esse tempo, as folhas são lavadas e fervidas repetidamente para remover o ácido cianídrico presente na mandioca brava, considerado uma substância tóxica e prejudicial ao sistema nervoso humano [16].
+
+Após a fermentação, as folhas são cozidas com uma variedade de carnes suínas, como costela, pé de porco, rabo de porco, toucinho, sendo utilizada até como tempero [4]. Também são adicionados outros como alho, cebola, cheiro-verde, pimenta e outros ingredientes de acordo com a preferência do cozinheiro.
+
+Após isso, a maniçoba é cozida em fogo baixo por um longo período, geralmente de dois a três dias, para garantir que todos os ingredientes estejam bem cozidos e que o sabor se desenvolva plenamente. É um prato rico em sabores e texturas, e a carne fica macia e saborosa devido ao longo tempo de cozimento [16].
+
+
 
 
 
