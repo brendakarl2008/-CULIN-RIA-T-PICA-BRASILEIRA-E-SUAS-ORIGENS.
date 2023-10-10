@@ -138,28 +138,165 @@ A maniçoba também é típica do Recôncavo baiano, sobretudo dos municípios d
 # INGREDIENTES
 
 1,5 kg de maniva pré-cozida
+
 Folhas de louro
+
 1 kg de toucinho salgado
 
 1 kg de linguiça calabresa
-charque
+
 1/2 kg de charque
-linguiça paio
+
 1/2 kg de paio
+
 1/2 kg de carne de porco assada de forno
-bacon
+
 1/2 kg de bacon
+
 Costelinha de porco defumada
 
 
 # Modo de preparo
 
 
-A preparação da maniçoba é marcada por ser um processo longo e trabalhoso. Inicialmente, as folhas da mandioca brava são colhidas e passam por um período de fermentação que pode durar várias semanas. Durante esse tempo, as folhas são lavadas e fervidas repetidamente para remover o ácido cianídrico presente na mandioca brava, considerado uma substância tóxica e prejudicial ao sistema nervoso humano [16].
+1 Coloque pra ferver a maniva e as folhas de louro, em bastante água em uma panela grande.
 
-Após a fermentação, as folhas são cozidas com uma variedade de carnes suínas, como costela, pé de porco, rabo de porco, toucinho, sendo utilizada até como tempero [4]. Também são adicionados outros como alho, cebola, cheiro-verde, pimenta e outros ingredientes de acordo com a preferência do cozinheiro.
 
-Após isso, a maniçoba é cozida em fogo baixo por um longo período, geralmente de dois a três dias, para garantir que todos os ingredientes estejam bem cozidos e que o sabor se desenvolva plenamente. É um prato rico em sabores e texturas, e a carne fica macia e saborosa devido ao longo tempo de cozimento [16].
+2 Em outra panela escalde por 2 vezes o toucinho e acrescente a maniva, deixe cozinhar até dissolve-lo totalmente.
+
+
+3 Quando dissolver e começar a ficar escura a maniva, acrescente uns pedaços de bacon e de chouriços em cubos grandes.
+
+
+4 Deixe ferver bem.
+
+
+5 Em uma tigela corte a calabresa em rodelas, o paio o restante do chouriço e o bacon.
+
+
+6 Escalde o charque e junte aos pedaços, quando estiver bem pretinha a maniva com os ingredientes coloque a carne de porco cortada em pedaços, já assada em forno e o restante dos ingredientes.
+
+
+7 Deixe encorpar, a maniçoba fica preta e bem encorpada.
+
+
+8 Sirva com arroz escorrido e molho de pimenta de cheiro.
+
+
+
+
+
+
+# COXINHA 
+
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/ff79f937-9102-44f3-8589-3c42eb723386)
+
+
+
+A coxinha teria sido criada em Limeira, no século 19. Diz a lenda que a nobreza imperial escondia um menino na Fazenda Morro Azul. Ele seria filho da Princesa Isabel, herdeira do Império do Brasil, e do Conde D’Eu e seria mantido longe da corte porque era tinha deficiência mental.
+
+Essa criança exigia cuidados intensos na alimentação e era muito “chato” para comer. Ele só comia coxas de galinha. Os outros pedaços da ave, como peito e asas, eram rejeitados e servidos às outras pessoas.
+
+Certa vez, a cozinheira da fazenda não tinha número suficiente de coxas de frango para o menino e, com medo de represálias, resolveu transformar uma galinhada inteira em coxas. Ela preparou uma massa de batatas, desfiou o frango e recriou uma coxinha de galinha. Para a surpresa, o filho da princesa amou o quitute e passou a pedir apenas pela tal “coxinha de galinha”.
+
+Com a fama, até a imperatriz Teresa Cristina teria ido a Limeira para experimentar o famoso quitute adorado pelo neto. Ela gostou tanto que solicitou que o modo de preparo fosse fornecido ao mestre da cozinha imperial, no Rio de Janeiro.
+
+
+# INGREDIENTES 🥣🥣🥣
+
+Para a massa:
+ 3 xícaras de farinha de trigo (420 gramas)
+ 3 xícaras de leite (720 mililitros)
+ 2 colheres de sopa de manteiga
+ 1 tablete de caldo de galinha
+ 1 colher de chá de sal
+
+
+Para o recheio:
+ 500 gramas de peito de frango cozido e desfiado
+ 2 tomates maduros picados
+  1 cebola picada
+ 3 colheres de sopa de cheiro verde picado
+ 4 colheres de sopa de requeijão cremoso
+ 1 colher de sopa de azeite de oliva
+ pimenta do reino
+ sal
+ 
+Para empanar e fritar:
+ ½ xícara de leite (120 mililitros)
+ 1 xícara de farinha de rosca
+ óleo para fritar
+
+
+ # MODO DE PREPARO
+
+
+
+1 Comece preparando a massa de coxinha simples: primeiramente leve ao fogo uma panela com o leite, a manteiga e o tablete de caldo
+
+2 Quando começar a ferver, baixe o fogo e coloque o sal e a farinha de trigo de só uma vez. Mexa imediatamente com uma colher de pau, misturando e amassando bem até que a massa de coxinha comece a desgrudar do fundo da panela, como na foto.
+
+3 Transfira a massa de coxinha para a bancada limpa e polvilhada com farinha e reserve até amornar. Depois amasse e sove a massa de coxinha simples com as suas mãos até que fique lisa e homogênea. A massa está pronta! Vamos preparar o recheio de frango e requeijão.
+
+4 Leve ao fogo baixo uma panela com o azeite, a cebola picada e os tomates. Tempere com sal e pimenta a gosto e deixe cozinhar, mexendo de vez em quando, por 5 minutos ou até estes ingredientes ficarem macios. 
+
+5 Depois acrescente o frango cozido e desfiado e o cheiro verde. Misture e deixe cozinhar por mais 1-2 minutos, para o frango pegar o gosto desses temperos. Desligue o fogo e deixe esfriar um pouco antes de misturar o requeijão cremoso neste recheio para coxinha simples.
+
+6 Pegue um pedaço da massa de coxinha e abra em forma de disco na sua mão. Coloque uma porção do recheio de frango e feche a massa modelando no formato da coxinha tradicional. Repita com a restante massa e recheio.
+
+7 Envolva as coxinhas no leite e, em seguida, passe na farinha de rosca. Esquente o óleo numa panela no fogo médio e, quando estiver quente, coloque 3-4 coxinhas fritando até que estejam douradas de todos os lados.
+
+8 Retire as coxinhas fritas para um prato com papel absorvente e reserve. Continue fritando as coxinhas restantes, apenas 3-4 de cada vez, para evitar que grudem umas nas outras e para não ficarem gordurosas.
+
+
+
+# CAIPIRINHA 🍸🍸🍸
+
+
+
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/5955475d-cc20-4859-8ba5-725c39c9603c)
+
+# HISTÓRIA 
+
+Segundo aponta o historiador Luís da Câmara Cascudo, a caipirinha foi criada por fazendeiros latifundiários na região de Piracicaba, no Estado de São Paulo, durante o século XIX, como um drinque local para festas e eventos de alto padrão, sendo um reflexo da forte cultura canavieira na região. A caipirinha, em seus primeiros dias, era vista como um substituto local de boa qualidade ao uísque e ao vinho importados, sendo, a bebida, servida frequentemente em coquetéis de alta classe de fazendeiros, vendas de gado e eventos de grande notoriedade.[5] Dessa origem de alta classe, a caipirinha logo passou para o gosto popular devido ao baixo preço de seus ingredientes, popularizando-se por todo o estado e se tornando a bebida-símbolo de São Paulo no século XIX. No início do século XX, na década de 1930, já era possível encontrá-la em outros estados, especialmente no Rio de Janeiro e Minas Gerais.
+
+
+
+## INGREDIENTES 🍸🍸🍸
+
+1 limão
+1 dose de cachaça
+2 colheres (sopa) de açúcar
+cubos de gelo a gosto
+
+
+
+# MODO DE PREPARO 
+
+
+ 1 Lave, seque e corte as extremidades do limão. Corte a fruta em 8 gomos, da seguinte maneira: corte em 4 partes no sentido do comprimento e, cada parte, em 2 metades.
+
+
+2  Transfira os gomos do limão para um copo baixo, junte o açúcar e amasse com um pilão. Complete com os cubos de gelo, despeje a cachaça e sirva a seguir.
+
+
+
+
+# CARNE DE SOL 🥩☀️
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
