@@ -322,6 +322,15 @@ Retire a carne da grelha, fatie e sirva.
 ## CABOOOOOOOO POR AQUI MESMO, BEIJOOOOOOO 💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋
 
 
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/d3ebc475-4e3e-4cd0-9fe1-a72541185d5e)
+
+
+
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/c57a7f6f-60d4-41e9-a0b4-feb5587edcaf)
+
+
+
+
 
 
 
