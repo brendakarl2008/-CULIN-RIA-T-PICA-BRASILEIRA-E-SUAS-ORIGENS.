@@ -284,6 +284,45 @@ cubos de gelo a gosto
 
 # CARNE DE SOL 🥩☀️
 
+![image](https://github.com/brendakarl2008/CULINARIA-TIPICA-BRASILEIRA-E-SUAS-ORIGENS/assets/132913371/4a49f6bf-1229-4f83-a1db-87c3cf4f2f13)
+
+
+
+### HISTÓRIA 📖 
+
+A carne de sol é uma comida típica do nordeste, consumida há mais de 400 anos. Ela leva esse nome porque no início era feita em duas etapas: salgando a carne ligeiramente e secando as peças ao sol. Com o passar dos anos, a carne preferida dos nordestinos conquistou o Brasil.
+
+
+# INGREDIENTES 🥘
+
+1 kg de carne bovina*
+1 xícara de sal grosso
+1 colher (de sopa) de pimenta-do-reino moída na hora
+1 colher de sopa de alho picado
+
+
+## MODO DE PREPARO 🥘🥘🥘
+
+
+Primeiramente, lave a carne de sua preferência com água corrente e seque-a com papel toalha.
+Em uma tigela, misture o sal grosso, a pimenta-do-reino e o alho.
+Espalhe a mistura de temperos por toda a carne, inclusive nas partes internas.
+Coloque a carne em uma vasilha e cubra com plástico filme.
+Deixe a carne na geladeira por 24 horas.
+Após esse tempo, retire a carne da geladeira e seque-a com papel toalha.
+Pendure a carne em um local fresco, bem ventilado, protegido de insetos e do sol direto. Dica: Deixe a carne secar por cerca de 5 a 7 dias. Durante esse período, a carne deve ser virada diariamente. Se possível, utilize um gancho para pendurar a carne.
+Quando a carne estiver firme, seca e com uma cor marrom, a secagem foi finalizada!
+
+Quando a secagem estiver concluída, pré-aqueça uma grelha ou churrasqueira em fogo médio.
+Coloque a carne na grelha e cozinhe por alguns minutos de cada lado, até que esteja cozida de acordo com o seu gosto pessoal.
+Retire a carne da grelha, fatie e sirva.
+
+
+
+## CABOOOOOOOO POR AQUI MESMO, BEIJOOOOOOO 💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋💋
+
+
+
 
 
 
